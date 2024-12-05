@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Frost-root-me
+- 👀 I’m interested in cyber security
+- 🌱 I’m currently learning 
+- 😄 Pronouns: fun and keen
+- ⚡ Fun fact: i'm polish guy ?
